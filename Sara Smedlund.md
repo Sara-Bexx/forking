@@ -1,16 +1,18 @@
 ### Sara Smedlund
 
-:smirk:
+:smirk: - Hey there class, you all look so pretty today!
 
-:sleeping:
+:sleeping: - I didn't sleep well last night...
 
-:heart_eyes:
+:heart_eyes: - But your faces made me happy!
 
-:sweat_smile:
+:sweat_smile: - I love your humor!!
 
-:astonished:
+:astonished: - WOW so much to learn... but it's exciting! 
 
 
 
 [GitHub](https://github.com) 
+
+
 
